@@ -1,2 +1,0 @@
-# Internship
-Internship 19
